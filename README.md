@@ -16,3 +16,5 @@ My love of building web experiences started in my high school’s library in 199
 - 📫 How to reach me: Send me an email at jason.rundell@gmail.com
 - 😄 Pronouns: He / him
 - ⚡ Fun fact: Almost died twice in Peru!
+
+**Find out EVEN MORE about me at [https://jasonrundell.com/](https://jasonrundell.com/)**
