@@ -17,4 +17,4 @@ My love of building web experiences started in my high school’s library in 199
 - 😄 Pronouns: He / him
 - ⚡ Fun fact: Almost died twice in Peru!
 
-**Find out EVEN MORE about me at [https://jasonrundell.com/](https://jasonrundell.com/)**
+**Find out EVEN MORE about me at [jasonrundell.com](https://jasonrundell.com/)**
