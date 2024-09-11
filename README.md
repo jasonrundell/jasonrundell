@@ -1,6 +1,6 @@
 # Jason Rundell
 
-## Full Stack Web Developer
+## Full Stack Web Developer & Manager
 
 Hey 👋 
 
