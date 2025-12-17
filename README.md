@@ -1,6 +1,6 @@
 # Jason Rundell
 
-## Full Stack Web Developer & Manager
+## Manager, Web Application Development / Sr. Full Stack Web Developer
 
 Hey 👋 
 
