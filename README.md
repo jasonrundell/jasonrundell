@@ -2,7 +2,7 @@
 
 ## Manager, Web Application Development / Sr. Full Stack Web Developer
 
-AI-first Application Development Manager and Senior Full Stack Web Developer with 20+ years building and leading high-impact web platforms. Specializes in modernizing legacy systems into scalable, cloud-ready web applications, integrating AI into development workflows and product features, and mentoring teams to deliver reliably in fast-paced environments.
+I'm an AI-first Application Development Manager and Senior Full Stack Web Developer with 20+ years leading high-impact web platforms and engineering teams. Skilled at modernizing legacy systems into scalable web applications, integrating AI into workflows and products, and aligning delivery with business goals.
 
 ## My story
 
